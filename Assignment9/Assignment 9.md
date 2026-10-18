@@ -17,4 +17,3 @@
 
 ![alt text](<Screenshot 2026-10-10 225940.png>)
 
-![alt text](<Screenshot 2026-10-10 230047.png>)
