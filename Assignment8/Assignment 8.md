@@ -13,4 +13,3 @@
 
 ![alt text](<Screenshot 2026-10-10 221610.png>)
 
-![alt text](<Screenshot 2026-10-10 222839.png>)
